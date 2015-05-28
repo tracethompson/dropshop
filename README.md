@@ -1,1 +1,1 @@
-See all the current products for sale on DropShop. 
+See all the current files for sale on <a href="http://getdropshop.com/">getdropshop.com</a>.
